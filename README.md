@@ -1,7 +1,7 @@
 # cookie-hack
 one of the best cookie hacks
 
-## DONT MIUSE THESE HACKS
+## DONT MISUSE THESE HACKS
 - these hacks are not to violate GitHub's Terms of Service
 
 # This is for EDUCATIONAL PURPOSES ONLY
