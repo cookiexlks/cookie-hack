@@ -10,5 +10,5 @@ one of the best cookie hacks
 ## DONT BLAME ME IF YOU GET BANNED
 ### THESE HACKS WERE MADE FOR A REASON!!!
 
-# Discord Support Server 
-📬 https://discord.gg/97egdhs/
+# Discord Support Server 📬 https://discord.gg/97egdhs/
+
